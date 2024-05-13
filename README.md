@@ -7,3 +7,5 @@ With the highest rate of kaiju-emergence in the world, Japan frequently faces de
 # Author of kaiju no.8 
 ![alt text!](author.jpg)
 "Kaiju No. 8" is a popular manga series written and illustrated by Naoya Matsumoto. It debuted on Shueisha's Shonen Jump+ website in July 2020 and quickly garnered a large following due to its engaging storyline and fresh take on the kaiju genre. The story revolves around Kafka Hibino, a man whose mundane job involves cleaning up after kaiju attacks. His life takes a dramatic turn when he gains the ability to transform into a kaiju himself, leading to a series of thrilling conflicts and challenges. Matsumoto's blend of dynamic artwork and compelling character development has made "Kaiju No. 8" one of the standout manga releases in recent years, appealing to fans of action-packed, supernatural narratives.
+# Characters
+![alt text!](author.jpg)
