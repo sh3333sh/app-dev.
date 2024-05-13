@@ -1,2 +1,1 @@
-# app-dev.
-My first repository.
+# Anime series kaiju no.8
